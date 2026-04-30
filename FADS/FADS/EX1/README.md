@@ -1,1 +1,0 @@
-# FADS — Exercise 1
